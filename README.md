@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sara
-- 👀 I’m interested in writing, literature, and art
+- 👀 I’m interested in writing, literature, art, and history
 - 🌱 I’m currently learning creative coding! 
 - 📫 Find me on IG @larissaserafina
 
